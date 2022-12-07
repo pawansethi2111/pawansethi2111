@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pawansethi2111
-- 👀 I’m interested in cocaine
+- 👀 I’m interested in learning and growing
 - 🌱 I’m currently learning to improve my work ethic
 - 💞️ I’m looking to collaborate on projects 
 - 📫 How to reach me : pawansethi2111 : Linkedin
